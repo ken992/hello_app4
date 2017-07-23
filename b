@@ -1,4 +1,4 @@
-i
+iubuntuで修正:wqiiiiiiiiiiiiiiiiiiiiiiiii
 
 
 i
